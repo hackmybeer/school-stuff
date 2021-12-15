@@ -20,12 +20,12 @@
 * [wikipedia.org](https://en.wikipedia.org/wiki/Individual_action_on_climate_change)
 * [unfccc.int](https://unfccc.int/blog/8-ways-you-can-take-climate-action-right-now)
 * [amnesty.org](https://www.amnesty.org/en/what-we-do/climate-change/)
+* [fridaysforfuture.de](https://fridaysforfuture.de/)
+* [fridaysforfuture.org](http://fridaysforfuture.org/)
 
 ### Misc.
 * [ipcc.ch](https://www.ipcc.ch/)
 * [climatejust.org.uk](https://www.climatejust.org.uk/what-climate-justice)
 * [climatejust.org.uk](https://www.climatejust.org.uk/what-climate-justice)
 * [yaleclimateconnections.org](https://yaleclimateconnections.org/2020/07/what-is-climate-justice/)
-* [fridaysforfuture.de](https://fridaysforfuture.de/)
-* [fridaysforfuture.org](http://fridaysforfuture.org/)
 * [greenpeace.org](https://greenpeace.com/global/)

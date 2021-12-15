@@ -1,1 +1,3 @@
 # school-stuff
+
+Personal school projects and assets for presentations...

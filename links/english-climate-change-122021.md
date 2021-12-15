@@ -29,3 +29,6 @@
 * [climatejust.org.uk](https://www.climatejust.org.uk/what-climate-justice)
 * [yaleclimateconnections.org](https://yaleclimateconnections.org/2020/07/what-is-climate-justice/)
 * [greenpeace.org](https://greenpeace.com/global/)
+
+### Images
+Fridays for Future Germany (Internal) -> [fridaysforfuture.de](https://fridaysforfuture.de/)

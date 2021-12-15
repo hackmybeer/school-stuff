@@ -31,4 +31,4 @@
 * [greenpeace.org](https://greenpeace.com/global/)
 
 ### Images
-Fridays for Future Germany (Internal) -> [fridaysforfuture.de](https://fridaysforfuture.de/)
+Fridays for Future Germany (Internal, i sadly can't give you access to these :/ ) -> [fridaysforfuture.de](https://fridaysforfuture.de/)
